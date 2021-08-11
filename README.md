@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vesp
+- 👀 I’m interested in: CODING
+- 🌱 I’m currently learning: HOW TO MAKE A DISCORD BOT
+- 💞️ I’m looking to collaborate on: NOTHING
+- 📫 How to reach me: NEVER
